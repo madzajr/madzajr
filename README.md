@@ -1,4 +1,4 @@
-about me<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/a4c287aa-77f2-4125-a0bd-7c4de1df7d9a" />
+Hiii!🤪<img width="480" height="480" alt="image" src="https://github.com/user-attachments/assets/a4c287aa-77f2-4125-a0bd-7c4de1df7d9a" />
 # 💫 About Me:
 It student🤭🤭🤭<br>Part time furry🦊🦊<br>Grandmasterbaiter on jerkmate🦾🦾<br>Catboy🐱🐱
 
